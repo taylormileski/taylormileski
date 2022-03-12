@@ -1,4 +1,11 @@
-### Hi there 👋
+### Helloooo!! 💫
+
+I'm Taylor (she/her) and I'm a Social Media Specialist here at GitHub 📱
+
+💬 Ask me about 
+- Anything social media related 👩‍💻
+- Roller skating 🛼
+- Sanrio & Sailor Moon 🌙
 
 <!--
 **taylormileski/taylormileski** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
